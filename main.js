@@ -2,12 +2,12 @@
 /*
 
 F E N I X - V 15
-             MADE BY F E N I X ID SERVER
+             MADE BY ❦★𝘿𝘼𝙍𝙆★❦†𝙕𝙀𝙍𝙊𝘾𝙊𝙊𝙇†𓃵
        
-✅ WhatsApp: wa.me/94773010580
-👥 Github: https://github.com/Fenix-server
+✅ WhatsApp: wa.me/233599662889
+👥 Github: https://github.com/ZeroCool263
 👥 Github: https://github.com/Botdevillozan
-🤖 Youtube https://youtube.com/@fenix_programmer
+🤖 Youtube https://youtube.com/@Jayden01
 */
 
 
